@@ -1,1 +1,1 @@
-# company consolidated financilal statements
+# company consolidated financial statements
